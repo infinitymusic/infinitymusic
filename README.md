@@ -8,7 +8,7 @@
 
 ㅤㅤalso plz call me **senya** if we r friends 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ**he/him**
+ㅤㅤㅤㅤㅤㅤㅤ **he/him**
 
 ㅤㅤㅤㅤㅤㅤ ㅤ**5teeeen**
 
