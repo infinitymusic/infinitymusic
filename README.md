@@ -8,7 +8,7 @@
 
 ㅤㅤalso plz call me **senya** if we r friends 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
+ㅤㅤㅤㅤㅤㅤ ㅤ**5teeeen**
 
 ㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
