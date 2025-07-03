@@ -35,7 +35,7 @@
 
 ⌇ popee the performer + chinchikurin, marvel
 
-⌇ epic the musical, hamilton, heathers, milgram
+⌇ epic the musical, hamilton the musical, heathers the musical, milgram
 
 ⌇ lifesteal, qsmp, hermitcraft, unstable universe  
 
