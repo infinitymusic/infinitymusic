@@ -24,7 +24,8 @@ if you feel uncomfortable in some moments **tell me about it**, i will apologize
 
 i use pet names for my friends and acquaintances also i don't mind if they use it for me too
 
-![Без названия1937_20250704011357](https://github.com/user-attachments/assets/e4a671d7-b88a-4cdf-be58-8efc505f43e0)
+![Без названия1937_20250704012429](https://github.com/user-attachments/assets/f4b7f02e-f41c-4963-9bab-0b1d65fc654d)
+
 
 
 
