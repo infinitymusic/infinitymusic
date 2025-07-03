@@ -1,4 +1,4 @@
-![big-wink](https://github.com/user-attachments/assets/c77427af-e9ee-44cd-83f3-63b9fffbdda9) heyoooo!
+![big-wink](https://github.com/user-attachments/assets/c77427af-e9ee-44cd-83f3-63b9fffbdda9) **HEYO!**
 ![Без названия1937_20250704012237](https://github.com/user-attachments/assets/ea7678ff-0323-4410-a7c9-4ba97a1e0479)
 
 
