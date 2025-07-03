@@ -7,6 +7,8 @@
 ㅤㅤㅤㅤㅤcall me **axen** or **elaire** 
 
 ㅤㅤalso plz call me **senya** if we r friends 
+ㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ**he/him**
 
 ㅤㅤㅤㅤㅤㅤ ㅤ**5teeeen**
 
