@@ -4,13 +4,13 @@
 
 **« so slot your pennies in the vending machine of love »**
 
-ㅤㅤㅤㅤㅤㅤcall me axen or elaire 
+ㅤㅤㅤㅤㅤcall me axen or elaire 
 
 ㅤㅤalso plz call me **senya** if we r friends 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
+ㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
 
-ㅤㅤㅤㅤㅤㅤㅤrus/eng yep yep
+ㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
 ㅤㅤㅤand yesss, we can be friends so dw 
 
