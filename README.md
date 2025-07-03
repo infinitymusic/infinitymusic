@@ -4,7 +4,7 @@
 
 **« so slot your pennies in the vending machine of love »**
 
-ㅤㅤㅤㅤㅤcall me axen or elaire 
+ㅤㅤㅤㅤㅤcall me **axen** or **elaire** 
 
 ㅤㅤalso plz call me **senya** if we r friends 
 
