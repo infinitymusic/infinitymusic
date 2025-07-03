@@ -17,13 +17,13 @@
 **« still on that 1-800, hit me up for a good time »**
 
 ![Без названия1938_20250704013128](https://github.com/user-attachments/assets/3a4ca567-8feb-4b08-9eab-1a8485fdf3cd)
-you can always talk to me about anything, i don't mind!
+⌇ you can always talk to me about anything, i don't mind!
 
-please keep in mind that english is **not** my first language and **i don't know it** 100%
+⌇ please keep in mind that english is **not** my first language and **i don't know it** 100%
 
-if you feel uncomfortable in some moments **tell me about it**, i will apologize and we will discuss it
+⌇ if you feel uncomfortable in some moments **tell me about it**, i will apologize and we will discuss it
 
-i use pet names for my friends and acquaintances also i don't mind if they use it for me too
+⌇ i use pet names for my friends and acquaintances also i don't mind if they use it for me too
 
 ![Без названия1937_20250704012429](https://github.com/user-attachments/assets/f4b7f02e-f41c-4963-9bab-0b1d65fc654d)
 
