@@ -5,6 +5,8 @@
 
 ㅤㅤㅤㅤㅤㅤcall me axen or elaire 
 
+ㅤ also call me **senya** if we friends plz
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
 
 ㅤㅤㅤㅤㅤㅤㅤrus/eng yep yep
