@@ -14,8 +14,6 @@
 
 ㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
-ㅤㅤㅤand yesss, we can be friends so dw 
-
 **« still on that 1-800, hit me up for a good time »**
 
 ![Без названия1938_20250704013128](https://github.com/user-attachments/assets/3a4ca567-8feb-4b08-9eab-1a8485fdf3cd)
