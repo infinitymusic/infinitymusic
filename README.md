@@ -1,5 +1,6 @@
-![big-wink](https://github.com/user-attachments/assets/7d10a2b6-c5a4-48d6-97ec-dfee3ee13810) heyoooo!
-![2f77585d383f6920a8d6ce6cc6f47b43](https://github.com/user-attachments/assets/56ac769c-5c1f-454c-8b7c-7a6df992fa9b)
+![big-wink](https://github.com/user-attachments/assets/c77427af-e9ee-44cd-83f3-63b9fffbdda9) heyoooo!
+![65793094a3a2f0ebda50ce19e5ecec60](https://github.com/user-attachments/assets/835f1f50-614a-4db7-84c8-1ae87857f86d)
+
 
 call me axen or elaire !
 
