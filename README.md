@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤcall me axen or elaire 
 
-ㅤ also call me **senya** if we friends plz
+ㅤ ㅤalso plz call me **senya** if we friends 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
 
