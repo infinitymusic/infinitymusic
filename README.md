@@ -16,6 +16,7 @@
 
 **« still on that 1-800, hit me up for a good time »**
 
+![Без названия1938_20250704013019](https://github.com/user-attachments/assets/dd4bc945-43fc-41bc-9de2-86197e4ad1e6)
 you can always talk to me about anything, i don't mind!
 
 please keep in mind that english is **not** my first language and **i don't know it** 100%
