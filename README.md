@@ -2,7 +2,7 @@
 ![Без названия1937_20250704012237](https://github.com/user-attachments/assets/ea7678ff-0323-4410-a7c9-4ba97a1e0479)
 
 
-**« so slot your pennies in the vending machine of love »**
+ㅤ**« so slot your pennies in the vending machine of love »**
 
 ㅤㅤㅤㅤㅤㅤcall me axen or elaire 
 
@@ -14,7 +14,7 @@
 
 ㅤㅤㅤand yesss, we can be friends so dw 
 
-**« still on that 1-800, hit me up for a good time »**
+ㅤ**« still on that 1-800, hit me up for a good time »**
 
 ![Без названия1938_20250704013128](https://github.com/user-attachments/assets/3a4ca567-8feb-4b08-9eab-1a8485fdf3cd)
 you can always talk to me about anything, i don't mind!
