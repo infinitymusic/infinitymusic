@@ -3,12 +3,12 @@
 
 **« so slot your pennies in the vending machine of love »**
 
-ㅤㅤㅤㅤcall me axen or elaire 
+ㅤㅤㅤㅤㅤㅤcall me axen or elaire 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ5teeeen
 
-ㅤㅤㅤㅤㅤrus/eng yep yep
+ㅤㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
-ㅤㅤㅤㅤㅤㅤdni basic >_<
+ㅤㅤㅤㅤㅤㅤㅤㅤdni basic >_<
 
 **« still on that 1-800, hit me up for a good time »**
