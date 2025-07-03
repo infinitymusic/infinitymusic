@@ -30,10 +30,15 @@
 ![Без названия1938_20250704013744](https://github.com/user-attachments/assets/f9f3fbbd-fee3-4305-a827-f4eb86eda675) ⌇ **THINGS THAT I RLLY LIKE:**
 
 ⌇ creepypasta
+
 ⌇ popee the performer + chinchikurin, marvel
+
 ⌇ epic the musical, hamilton, heathers, milgram
+
 ⌇ lifesteal, qsmp, hermitcraft, unstable universe  
+
 ⌇ dogs: bullets and carnage, soul eater, nambaka, juuni taisen, alice in borderland, saiki kusuo, chainsaw man
+
 ⌇ danganronpa, persona, omori, devil may cry, fnaf, hades
 
 
