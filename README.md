@@ -13,4 +13,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤdni basic >_<
 
+ㅤㅤㅤand yesss, we can be friends so dw 
+
 **« still on that 1-800, hit me up for a good time »**
