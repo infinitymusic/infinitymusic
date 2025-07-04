@@ -41,4 +41,6 @@
 
 ⌇ danganronpa, persona, omori, devil may cry, fnaf, hades
 
+![coca-cola](https://github.com/user-attachments/assets/eeb23614-55c7-4d03-a73e-10c0c38edc9f)
 
+**i luv coca cola sm... sobs...give me one...**
