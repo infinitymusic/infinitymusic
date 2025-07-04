@@ -21,7 +21,7 @@
 
 ⌇ please keep in mind that english is **not** my first language and **i don't know it** 100%
 
-⌇ if you feel uncomfortable in some moments **tell me about it**, i will apologize and we will discuss it
+⌇ if you feel uncomfortable in some moments - **tell me about it**, i will apologize and we will discuss it
 
 ⌇ i use pet names for my **friends** and **acquaintances** also **i don't mind** if they use it for me too
 
