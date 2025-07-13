@@ -10,6 +10,8 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤ**5teeeen**
 
+ㅤㅤㅤㅤㅤㅤㅤㅤbasic dni  
+ 
 ㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
 **« still on that 1-800, hit me up for a good time »**
