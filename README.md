@@ -10,7 +10,7 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤ**5teeeen**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤbasic dni  
+ㅤㅤㅤㅤㅤㅤㅤbasic dni  
  
 ㅤㅤㅤㅤㅤㅤrus/eng yep yep
 
