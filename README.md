@@ -25,6 +25,8 @@
 
 ⌇ i'm kinda shy during the first interaction, so sorry 💔 but i will be very talkative after
 
+⌇ i rlly luv int w people but i have social anxiety plz help
+
 ![Без названия1937_20250704012429](https://github.com/user-attachments/assets/f4b7f02e-f41c-4963-9bab-0b1d65fc654d)
 
 ![Без названия1938_20250704013744](https://github.com/user-attachments/assets/f9f3fbbd-fee3-4305-a827-f4eb86eda675) ⌇ **THINGS THAT I RLLY LIKE:**
