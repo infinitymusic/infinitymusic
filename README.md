@@ -16,4 +16,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease keep in mind that english is **not** my first language and i don't know it 100%
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
