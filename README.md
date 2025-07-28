@@ -13,3 +13,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![2c822227b8023eef69983c9b6cf55ca22c47abf9](https://github.com/user-attachments/assets/4cf3725a-8817-478f-ab9c-41ea8225d21a)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **« still on that 1-800, hit me up for a good time »**
+
+⌇ please keep in mind that english is **not** my first language and i don't know it 100%
+
+⌇ let me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
