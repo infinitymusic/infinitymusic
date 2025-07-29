@@ -35,7 +35,7 @@ lifesteal, qsmp, hermitcraft, unstable universe
 
 dogs: bullets and carnage, soul eater, nambaka, juuni taisen, alice in borderland, saiki kusuo, chainsaw man
 
-danganronpa, persona, omori, devil may cry, fnaf, hades
+danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
