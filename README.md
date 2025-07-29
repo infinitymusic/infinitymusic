@@ -22,6 +22,21 @@
 
 <img width="3056" height="718" alt="1753747573648" src="https://github.com/user-attachments/assets/5c09b223-5fc4-49c2-885a-5f712581c872" />
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
+
+creepypasta, marvel
+
+popee the performer + chinchikurin
+
+epic the musical, hamilton the musical, heathers the musical, hadestown, milgram, alien stage
+
+lifesteal, qsmp, hermitcraft, unstable universe
+
+dogs: bullets and carnage, soul eater, nambaka, juuni taisen, alice in borderland, saiki kusuo, chainsaw man
+
+danganronpa, persona, omori, devil may cry, fnaf, hades
+
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
 
 ![coca-cola (1)](https://github.com/user-attachments/assets/26c6df67-07c2-4c1c-a58e-8fb7a81970c2)
