@@ -27,7 +27,7 @@
 ![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/7cb5f098-f99f-405a-8a60-71e314e28211)
 creepypasta, marvel
 
-popee the performer + chinchikurin
+popee the performer + chinchikurin, pjo
 
 epic the musical, hamilton the musical, heathers the musical, hadestown, milgram, alien stage
 
