@@ -20,7 +20,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi'm kinda shy during the first int since social anxiety, so sorry 💔 but i will be very talkative after
 
-<img width="3322" height="961" alt="Без названия1979_20250729181528" src="https://github.com/user-attachments/assets/3d6d2b22-d3b5-4b09-9701-c6c8b640f07e" />
+<img width="3322" height="961" alt="Без названия1979_20250729182051" src="https://github.com/user-attachments/assets/8ac54305-2b63-4e4e-9cb4-ac2383dc91c3" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
 
