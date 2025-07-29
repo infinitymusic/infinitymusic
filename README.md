@@ -21,3 +21,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi'm kinda shy during the first int since social anxiety, so sorry 💔 but i will be very talkative after
 
 <img width="3056" height="718" alt="1753747573648" src="https://github.com/user-attachments/assets/5c09b223-5fc4-49c2-885a-5f712581c872" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
