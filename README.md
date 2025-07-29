@@ -24,5 +24,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
 
-<img width="87" height="89" alt="image" src="https://github.com/user-attachments/assets/ab561eeb-ab3f-4479-b533-2d2b63743209" />
+<div class="tenor-gif-embed" data-postid="3968820139577760936" data-share-method="host" data-aspect-ratio="0.973451" data-width="100%"><a href="https://tenor.com/view/coca-cola-gif-3968820139577760936">Coca Cola Sticker</a>from <a href="https://tenor.com/search/coca+cola-stickers">Coca Cola Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 <img width="99" height="55" alt="2bba0415" src="https://github.com/user-attachments/assets/7d3b2a47-b3f0-484e-8ece-4a5508f3fecb" />
