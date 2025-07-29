@@ -22,4 +22,6 @@
 
 <img width="3056" height="718" alt="1753747573648" src="https://github.com/user-attachments/assets/5c09b223-5fc4-49c2-885a-5f712581c872" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
+
+<img width="99" height="55" alt="2bba0415" src="https://github.com/user-attachments/assets/7d3b2a47-b3f0-484e-8ece-4a5508f3fecb" />
