@@ -24,4 +24,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
 
+<img width="87" height="89" alt="image" src="https://github.com/user-attachments/assets/ab561eeb-ab3f-4479-b533-2d2b63743209" />
 <img width="99" height="55" alt="2bba0415" src="https://github.com/user-attachments/assets/7d3b2a47-b3f0-484e-8ece-4a5508f3fecb" />
