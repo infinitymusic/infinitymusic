@@ -43,7 +43,3 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 ![coca-cola (1)](https://github.com/user-attachments/assets/26c6df67-07c2-4c1c-a58e-8fb7a81970c2)
 
 my friends r very cool ily gang /p
-
-<img width="675" height="536" alt="Без названия1977_20250729184315" src="https://github.com/user-attachments/assets/5159bf53-cecb-40c2-9234-3cdb8f53061c" />
-<img width="675" height="536" alt="Без названия1977_20250729184330" src="https://github.com/user-attachments/assets/96b1a394-6897-418f-93e5-025d9a7d891d" />
-
