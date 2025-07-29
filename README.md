@@ -1,4 +1,5 @@
-<img width="3056" height="718" alt="1753741816924" src="https://github.com/user-attachments/assets/4c74d4ed-b6f2-4619-ad87-a82d222d0f8e" />
+<img width="3056" height="718" alt="Без названия1937_20250729042436" src="https://github.com/user-attachments/assets/f90b1638-ee7e-4800-8195-9e9fb6e8a2cf" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **« so slot your pennies in the vending machine of love »**
 
@@ -20,7 +21,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi'm kinda shy during the first int since social anxiety, so sorry 💔 but i will be very talkative after
 
-<img width="3056" height="718" alt="1753747573648" src="https://github.com/user-attachments/assets/5c09b223-5fc4-49c2-885a-5f712581c872" />
+<img width="3056" height="718" alt="Без названия1937_20250729042449" src="https://github.com/user-attachments/assets/4ee48924-ea22-479b-8294-a42355e9411f" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
 
