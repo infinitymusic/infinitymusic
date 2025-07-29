@@ -22,7 +22,7 @@
 
 <img width="3056" height="718" alt="1753747573648" src="https://github.com/user-attachments/assets/5c09b223-5fc4-49c2-885a-5f712581c872" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
 
 ![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/7cb5f098-f99f-405a-8a60-71e314e28211)
 creepypasta, marvel
