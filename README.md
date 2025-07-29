@@ -24,6 +24,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
 
+![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/7cb5f098-f99f-405a-8a60-71e314e28211)
 creepypasta, marvel
 
 popee the performer + chinchikurin
