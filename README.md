@@ -44,4 +44,6 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 my friends r very cool ily gang /p
 
+<img width="640" height="502" alt="Без названия1974_20250729183724" src="https://github.com/user-attachments/assets/068f5d17-9090-4d75-9903-3273943fee35" />
+<img width="640" height="502" alt="Без названия1974_20250729184036" src="https://github.com/user-attachments/assets/71e4e57b-df5f-4d32-a192-e849febad08f" />
 
