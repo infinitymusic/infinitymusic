@@ -2,9 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ« **so slot your pennies in the vending machine of love** »
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤaxen & elaire
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplz call me **senya** if we r friends
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**axen & elaire**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤbasic dni
 
@@ -42,4 +40,3 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 <img width="176" height="139" alt="Без названия1981_20250729184636" src="https://github.com/user-attachments/assets/51e4a73d-496e-4c24-a301-cb38693abad5" />
 <img width="176" height="139" alt="Без названия1981_20250729184649" src="https://github.com/user-attachments/assets/f4680039-0553-4a24-8688-d90310e1db1b" />
-
