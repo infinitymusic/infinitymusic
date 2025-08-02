@@ -40,12 +40,6 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
 
-![coca-cola (1)](https://github.com/user-attachments/assets/26c6df67-07c2-4c1c-a58e-8fb7a81970c2)
-
-my friends r very cool ily gang /p
-
-ANDY UR AN EGG. >3<
-
 <img width="176" height="139" alt="Без названия1981_20250729184636" src="https://github.com/user-attachments/assets/51e4a73d-496e-4c24-a301-cb38693abad5" />
 <img width="176" height="139" alt="Без названия1981_20250729184649" src="https://github.com/user-attachments/assets/f4680039-0553-4a24-8688-d90310e1db1b" />
 
