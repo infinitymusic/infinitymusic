@@ -12,7 +12,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ« **still on that 1-800, hit me up for a good time** »
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤkeep in mind that english is **not** my first language and **i don't know it** 100%
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤkeep in mind that english is **not** my first language and **i don't know it** 100%
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
 
