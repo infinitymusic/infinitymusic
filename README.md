@@ -44,3 +44,5 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 <img width="176" height="139" alt="Без названия1981_20250729184636" src="https://github.com/user-attachments/assets/51e4a73d-496e-4c24-a301-cb38693abad5" />
 <img width="176" height="139" alt="Без названия1981_20250729184649" src="https://github.com/user-attachments/assets/f4680039-0553-4a24-8688-d90310e1db1b" />
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tc6mvmoeszncil6hge4dlyl2yq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
