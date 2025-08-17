@@ -16,7 +16,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ i'm kinda shy(?) during the first int since social anxiety, so sorry 💔 but i will be very talkative afterㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i'm kinda shy(?) during the first int since social anxiety, so sorry 💔 but i will be very talkative afterㅤㅤㅤㅤ
 
 <img width="3322" height="961" alt="Без названия1979_20250729182051" src="https://github.com/user-attachments/assets/8ac54305-2b63-4e4e-9cb4-ac2383dc91c3" />
 
