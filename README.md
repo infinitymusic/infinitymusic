@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤkeep in mind that english is **not** my first language and **i don't know it** 100%
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if you feel uncomfortable in some moments, **i'll apologize** and **we'll discuss it**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlet me know if something makes you uncomfortable, i will apologize and stop
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i'm kinda shy(?) during the first int since social anxiety, so sorry 💔 but i will be very talkative afterㅤㅤㅤㅤ
 
