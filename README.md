@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**rus◞ eng**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![2c822227b8023eef69983c9b6cf55ca22c47abf9](https://github.com/user-attachments/assets/4cf3725a-8817-478f-ab9c-41ea8225d21a)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![9d07836c](https://github.com/user-attachments/assets/ddb017a1-87e7-46dc-83a1-c1f2abe3fc55)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ« **still on that 1-800, hit me up for a good time** »
 
