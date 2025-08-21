@@ -14,7 +14,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤkeep in mind that english is **not** my first language and **i don't know it** 100%
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  let me know if something makes you uncomfortable, i will apologize and stop
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  **let me know** if something makes you uncomfortable, **i will apologize and stop**
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤi may seem shy(?) during the first int cuz social anxiety, sorry abt this 💔ㅤㅤㅤㅤ
 
