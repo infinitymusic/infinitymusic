@@ -1,4 +1,4 @@
-<img width="3322" height="1104" alt="Без названия1979_20250729180958" src="https://github.com/user-attachments/assets/65e7a8c1-914c-4db4-8f24-42087ad43a92" />
+<img width="3056" height="718" alt="Без названия2023_20250821121524" src="https://github.com/user-attachments/assets/b262ba64-0a82-4a1b-b855-cda9fa25b33a" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ« **so slot your pennies in the vending machine of love** »
 
@@ -18,7 +18,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i'm kinda shy(?) during the first int since social anxiety, so sorry 💔 but i will be very talkative afterㅤㅤㅤㅤ
 
-<img width="3322" height="961" alt="Без названия1979_20250729182051" src="https://github.com/user-attachments/assets/8ac54305-2b63-4e4e-9cb4-ac2383dc91c3" />
+<img width="3056" height="718" alt="Без названия2023_20250821122416" src="https://github.com/user-attachments/assets/b3374b42-61c3-4e3c-a742-f5891ab8f4d3" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**THINGS THAT I RLLY LIKE:**
 
@@ -41,6 +41,3 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune, twisted wond
 **#tonystark'srealsonnotlying**
 
 **pfp's cr: @ann yasu d on x**
-
-<img width="176" height="139" alt="Без названия1981_20250729184636" src="https://github.com/user-attachments/assets/51e4a73d-496e-4c24-a301-cb38693abad5" />
-<img width="176" height="139" alt="Без названия1981_20250729184649" src="https://github.com/user-attachments/assets/f4680039-0553-4a24-8688-d90310e1db1b" />
