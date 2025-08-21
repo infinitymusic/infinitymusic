@@ -16,7 +16,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  let me know if something makes you uncomfortable, i will apologize and stop
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤi may seem dry during the first int cuz social anxiety, sorry abt this 💔ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤi may seem shy(?) during the first int cuz social anxiety, sorry abt this 💔ㅤㅤㅤㅤ
 
 <img width="3056" height="718" alt="Без названия2023_20250821122416" src="https://github.com/user-attachments/assets/b3374b42-61c3-4e3c-a742-f5891ab8f4d3" />
 
