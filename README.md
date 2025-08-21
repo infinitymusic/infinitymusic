@@ -20,7 +20,7 @@
 
 <img width="3056" height="718" alt="Без названия2023_20250821122416" src="https://github.com/user-attachments/assets/b3374b42-61c3-4e3c-a742-f5891ab8f4d3" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     **FANDOMS:**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       **FANDOMS:**
 
 ![tumblr_inline_p7lbzftHdi1qid2nw_75sq](https://github.com/user-attachments/assets/7cb5f098-f99f-405a-8a60-71e314e28211)
 creepypasta, marvel
