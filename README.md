@@ -39,5 +39,3 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**i love coca cola sm... sobs... give me one #cocacolafannumber1**
 
 **#tonystark'srealsonnotlying**
-
-**andy r stupid ^_^ LOVE YA SM**
