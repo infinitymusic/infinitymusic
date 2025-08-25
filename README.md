@@ -40,5 +40,4 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 **#tonystark'srealsonnotlying**
 
-<img width="253" height="293" alt="Без названия2011_20250825113203" src="https://github.com/user-attachments/assets/44e73fd7-815e-4739-a501-cb8fe20df7bf" />
-
+<img width="147" height="177" alt="Без названия2029_20250825113411" src="https://github.com/user-attachments/assets/84c6fd63-e022-4461-abfe-ff17ecb4d04a" />
