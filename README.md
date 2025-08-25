@@ -40,4 +40,5 @@ danganronpa, persona, omori, devil may cry, fnaf, hades, deltarune
 
 **#tonystark'srealsonnotlying**
 
-<img width="147" height="177" alt="Без названия2029_20250825113411" src="https://github.com/user-attachments/assets/84c6fd63-e022-4461-abfe-ff17ecb4d04a" />
+<img width="147" height="177" alt="Без названия2029_20250825113411" src="https://github.com/user-attachments/assets/84c6fd63-e022-4461-abfe-ff17ecb4d04a" /> 
+**me n my spouse, ok...? i love them, ok...?**
