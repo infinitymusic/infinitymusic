@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝐫𝐮𝐬 ˖ 𝐞𝐧𝐠 ੭ 𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=8d2b58&label=♪︎)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=8d2b58&label=౨ৎ)
 
 <img width="1900" height="749" alt="Без названия2082_20250925131947" src="https://github.com/user-attachments/assets/116caaef-626b-4505-b354-53fd77db0d78" />
 
