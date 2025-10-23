@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝐫𝐮𝐬 ˖ 𝐞𝐧𝐠 ੭ 𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ          [𝐬trawpage](https://candysong.straw.page/)ㅤ   ㅤ   [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ   [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ       [𝐬trawpage](https://candysong.straw.page/)ㅤ   ㅤ   [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ   [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=8d2b58&label=౨ৎ)
 
