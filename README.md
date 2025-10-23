@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝐫𝐮𝐬 ˖ 𝐞𝐧𝐠 ੭ 𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢
 
-𝐠uns.lol[](https://guns.lol/streetofdreams)
+[𝐠uns.lol](https://guns.lol/streetofdreams)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=8d2b58&label=౨ৎ)
 
