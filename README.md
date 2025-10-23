@@ -1,4 +1,4 @@
-<img width="2854" height="1687" alt="Без названия2051_20251022213309" src="https://github.com/user-attachments/assets/e2ca3ac4-3f10-4f39-8a5a-2c03ab8849ee" />
+<img width="2854" height="1687" alt="Без названия2051_20251023123118" src="https://github.com/user-attachments/assets/1fe2d1ba-fb63-430e-9114-fd2b9679b947" />
 
 ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ≺ㅤㅤ𝐭𝐢𝐦𝐞 𝐧𝐞𝐯𝐞𝐫 𝐰𝐚𝐢𝐭𝐬. 𝐢𝐭 𝐝𝐞𝐥𝐢𝐯𝐞𝐫𝐬 𝐚𝐥𝐥 𝐞𝐪𝐮𝐚𝐥𝐥𝐲 𝐭𝐨 𝐭𝐡𝐞 𝐬𝐚𝐦𝐞 𝐞𝐧𝐝.ㅤ 𝄞
 
