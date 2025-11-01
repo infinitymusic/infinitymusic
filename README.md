@@ -1,4 +1,4 @@
-<img width="2854" height="1687" alt="Без_названия2051_Восстановленный_20251030113738" src="https://github.com/user-attachments/assets/662acf3d-9dfb-4268-8a7b-1d4c99066876" />
+<img width="2854" height="1687" alt="Без_названия2051_Восстановленный_20251102013545" src="https://github.com/user-attachments/assets/e8a11a8c-2078-43a3-a23b-71dec05f2d2e" />
 
 ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ≺ㅤㅤ𝐩𝐫𝐨𝐦𝐢𝐬𝐞 𝐲𝐨𝐮'𝐥𝐥 𝐜𝐨𝐦𝐞 𝐚𝐧𝐝 𝐬𝐚𝐯𝐞 𝐦𝐞. . .ㅤ 𝄞
 
