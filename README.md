@@ -11,7 +11,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104816" src="https://github.com/user-attachments/assets/f9f46308-a32b-44b3-8340-844cc4862e18" />ㅤㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104857" src="https://github.com/user-attachments/assets/4c7e22da-6746-4d7d-a045-c98af55baba7" />
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/d396ce78-4852-4a44-8b62-297690d1f7d4)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ   ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/d396ce78-4852-4a44-8b62-297690d1f7d4)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₍ᐢ‥ᐢ₎
 
