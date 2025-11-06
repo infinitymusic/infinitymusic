@@ -17,6 +17,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤ   ㅤ  [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ  [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=e07233&label=౨ৎ)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ    ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=e07233&label=౨ৎ)
 
 
