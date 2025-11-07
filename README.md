@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝐫𝐮𝐬 ˖ 𝐞𝐧𝐠 ![tumblr_df412f5a9347ea8f943b48b78850f596_f72454cd_75](https://github.com/user-attachments/assets/2d178028-fa72-4946-821e-6271783ae5ab)  [𝐛𝐚𝐬𝐢𝐜 𝐝𝐧𝐢](https://dni-criteria.carrd.co/)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104816" src="https://github.com/user-attachments/assets/f9f46308-a32b-44b3-8340-844cc4862e18" />ㅤㅤ ㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104857" src="https://github.com/user-attachments/assets/4c7e22da-6746-4d7d-a045-c98af55baba7" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104816" src="https://github.com/user-attachments/assets/f9f46308-a32b-44b3-8340-844cc4862e18" />ㅤㅤ ㅤ<img width="48" height="30" alt="Без названия2133_20251030104857" src="https://github.com/user-attachments/assets/4c7e22da-6746-4d7d-a045-c98af55baba7" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/4ad632ab-82e6-4549-91f8-4e3dcfdaaaac)
 
