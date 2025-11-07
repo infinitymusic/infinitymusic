@@ -10,9 +10,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="48" height="30" alt="Без названия2133_20251030104816" src="https://github.com/user-attachments/assets/f9f46308-a32b-44b3-8340-844cc4862e18" />ㅤㅤ <img width="48" height="30" alt="Без названия2133_20251030104857" src="https://github.com/user-attachments/assets/4c7e22da-6746-4d7d-a045-c98af55baba7" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₍ᐢ‥ᐢ₎
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ₍ᐢ‥ᐢ₎
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤ   ㅤ  [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ  [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  ㅤ  [𝐬trawpage](https://streetofdreams.straw.page/)ㅤ   ㅤ  [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ  [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=infinitymusic&style=for-the-badge&color=e07233&label=ৎ)
 
