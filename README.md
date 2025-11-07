@@ -8,9 +8,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="48" height="30" alt="Без названия2133_20251030104816" src="https://github.com/user-attachments/assets/f9f46308-a32b-44b3-8340-844cc4862e18" />ㅤㅤ ㅤ<img width="48" height="30" alt="Без названия2133_20251030104857" src="https://github.com/user-attachments/assets/4c7e22da-6746-4d7d-a045-c98af55baba7" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/4ad632ab-82e6-4549-91f8-4e3dcfdaaaac)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/4ad632ab-82e6-4549-91f8-4e3dcfdaaaac)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤ   ㅤ  [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ  [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤ   ㅤ  [𝐠uns.lol](https://guns.lol/streetofdreams)ㅤ   ㅤ  [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
 
 
