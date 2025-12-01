@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![tumblr_5cc802c47d1bd65cbb9c0f54eb4c22d8_71d7978f_75](https://github.com/user-attachments/assets/4ad632ab-82e6-4549-91f8-4e3dcfdaaaac)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤ ˖ㅤ [𝐫entry](https://rentry.co/mydearorchids)ㅤ ˖ㅤ [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐬trawpage](https://streetofdreams.straw.page/)ㅤㅤ ˖ㅤㅤ [𝐫entry](https://rentry.co/mydearorchids)ㅤㅤ ˖ㅤㅤ [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
 
 
