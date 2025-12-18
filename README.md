@@ -5,7 +5,3 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*𝐫us ˖ 𝐞ng* ![tumblr_471f62148dbe7780f881d2374195beb3_5949c375_75](https://github.com/user-attachments/assets/e9beaacb-0027-4d66-a0c5-213f22a930a4) [𝐛asic 𝐝𝐧𝐢](https://dni-criteria.carrd.co/)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [𝐬trawpage](https://streetofdreams.straw.page/)ㅤ ˖ㅤ [𝐫entry](https://rentry.co/mydearorchids)ㅤ ˖ㅤ [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
-
-
-
-<center><h1><span style="color:a98f9b">текст</span></h1></center>
