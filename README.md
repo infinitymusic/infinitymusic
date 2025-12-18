@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ≺ㅤ.  𝐩𝐫𝐨𝐦𝐢𝐬𝐞 you'll come and 𝐬𝐚𝐯𝐞 𝐦𝐞. . .ㅤ 𝄞
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ%#d0c9cc*𝐫us ˖ 𝐞ng*%% ![tumblr_df412f5a9347ea8f943b48b78850f596_f72454cd_75](https://github.com/user-attachments/assets/2d178028-fa72-4946-821e-6271783ae5ab)  [𝐛asic 𝐝𝐧𝐢](https://dni-criteria.carrd.co/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*𝐫us ˖ 𝐞ng* ![tumblr_df412f5a9347ea8f943b48b78850f596_f72454cd_75](https://github.com/user-attachments/assets/2d178028-fa72-4946-821e-6271783ae5ab)  [𝐛asic 𝐝𝐧𝐢](https://dni-criteria.carrd.co/)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [𝐬trawpage](https://streetofdreams.straw.page/)ㅤ ˖ㅤ [𝐫entry](https://rentry.co/mydearorchids)ㅤ ˖ㅤ [𝐩𝐫𝐧𝐬.page](https://en.pronouns.page/@infinitymusic)
 
