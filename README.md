@@ -8,4 +8,4 @@
 
 
 
-<span style="color:a98f9b">aa</span></h1></center>
+<center><h1><span style="color:a98f9b">текст</span></h1></center>
