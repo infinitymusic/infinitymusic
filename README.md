@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ 
 $\text{\color{#faf9fa}vanessa}$
-$\text{\color{#c6b0bf}16}$
+$\text{\color{#c6b0bf}6teen}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 $\text{\color{#ddd8db}c+h enc ˖}$
