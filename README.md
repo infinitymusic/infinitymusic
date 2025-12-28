@@ -4,4 +4,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ˖ㅤ [𝐫en*try*](https://rentry.co/mydearorchids)ㅤ ˖
 
-$\text{\color{#c8bcc3}v}$$\text{\color{#faf9fa}anessa}$
+$\text{\color{#c8bcc3}v} $$\text{\color{#faf9fa}anessa}$
