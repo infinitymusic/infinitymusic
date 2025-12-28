@@ -5,4 +5,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ˖ㅤ [𝐫en*try*](https://rentry.co/mydearorchids)ㅤ ˖
 
 
-$\text{\color{#a98f9b}vanessa}
+$\text{\color{#a98f9b}vanessa}$
