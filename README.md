@@ -4,7 +4,7 @@
 $\text{\color{#faf9fa}vanessa}$
 $\text{\color{#c6b0bf}16}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#ddd8db}c+h enc ˖ w2i}$
 
 $\text{\color{#a98f9b}rus ˖ eng}$ ![tumblr_471f62148dbe7780f881d2374195beb3_5949c375_75](https://github.com/user-attachments/assets/e9beaacb-0027-4d66-a0c5-213f22a930a4)
