@@ -1,6 +1,6 @@
 <img width="2637" height="1092" alt="lalala_20251218191552" src="https://github.com/user-attachments/assets/b2a776a7-bb81-4cc2-8877-500a46aba8a1" /> 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ 
 $\text{\color{#faf9fa}vanessa}$
 $\text{\color{#c6b0bf}16}$
 
