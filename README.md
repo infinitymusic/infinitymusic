@@ -3,3 +3,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\text{\color{#c8bcc3}rus ˖ eng}$ ![tumblr_471f62148dbe7780f881d2374195beb3_5949c375_75](https://github.com/user-attachments/assets/e9beaacb-0027-4d66-a0c5-213f22a930a4) [𝐛asic 𝐝𝐧𝐢](https://dni-criteria.carrd.co/)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ˖ㅤ [𝐫en*try*](https://rentry.co/mydearorchids)ㅤ ˖
+
+$\text{\color{#c8bcc3}rus ˖ eng}$
