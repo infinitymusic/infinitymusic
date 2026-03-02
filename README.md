@@ -12,4 +12,4 @@ $\text{\color{#f8f6f6}w2i}$
 $\text{\color{#b1adc2}rus ˖ eng}$ ![tumblr_471f62148dbe7780f881d2374195beb3_5949c375_75](https://github.com/user-attachments/assets/e9beaacb-0027-4d66-a0c5-213f22a930a4)
 $\text{\color{#c3afc2}basic dni}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ˖ㅤ [ren*try*](https://rentry.co/mydearorchids)ㅤ ˖
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ˖ㅤ [rentry](https://rentry.co/mydearorchids)ㅤ ˖
