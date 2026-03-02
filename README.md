@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#c3afc2}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ ≀  . }$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 <img width="2637" height="637" alt="lalala_20260302163008" src="https://github.com/user-attachments/assets/98951526-6e85-467e-b473-ab48a87bfe8b" />
