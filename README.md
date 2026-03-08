@@ -1,7 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#abc0bc}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ ≀  . }$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img width="2637" height="637" alt="lalala_20260302163008" src="https://github.com/user-attachments/assets/98951526-6e85-467e-b473-ab48a87bfe8b" />
+<img width="2637" height="735" alt="lalala_20260308190341" src="https://github.com/user-attachments/assets/2c5afee3-01e0-4e5b-996f-a3f75019213b" />
 
 
 
