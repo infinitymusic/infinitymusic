@@ -11,8 +11,9 @@ $\text{\color{#9c716b}vanessa ༘ 6teen}$
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#6b4747}c+h encㅤ ˖ ㅤint freely!}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#4a323c}rus ˖ eng}$ 
+
 ![tumblr_471f62148dbe7780f881d2374195beb3_5949c375_75](https://github.com/user-attachments/assets/e9beaacb-0027-4d66-a0c5-213f22a930a4)
 
 
