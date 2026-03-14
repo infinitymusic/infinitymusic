@@ -9,7 +9,7 @@ $\text{\color{#cdb8b4}╭⁽ㅤㅤ trouble ahead... what? it's my fault?ㅤㅤ �
 $\text{\color{#9c716b}vanessa ༘ 6teen}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-$\text{\color{#6b4747}c+h encㅤ ˖ ㅤint freely!}$
+$\text{\color{#6b4747}c*h encㅤ ˖ ㅤint freely!}$
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 $\text{\color{#4a323c}rus ˖ eng}$ 
